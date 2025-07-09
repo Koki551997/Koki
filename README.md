@@ -1,2 +1,2 @@
 # Koki
-What the
+How to get the money?
